@@ -1,4 +1,5 @@
 # GitGudMgaLods
 
-First
-1st Branch
+Rancil Aurora
+Xavier Bugtong
+JE Lawenko
