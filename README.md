@@ -1,5 +1,13 @@
 # GitGudMgaLods
 
 Way traffic
-way LTO
-Way ulan
+Way LTO
+Way Ulan
+Lumpia
+Love
+Dreams
+Selpon
+Bag
+shoes
+motor
+
